@@ -1,7 +1,7 @@
 Olimjon Obidjonov
 =====
 Contact
-----
+---
 - __Phone:__ +998336077788
 - __Telegram:__ [@obidjonov7777](https://t.me/obidjonov7777)
 - __Email:__ obidjonov7777@gmail.com
